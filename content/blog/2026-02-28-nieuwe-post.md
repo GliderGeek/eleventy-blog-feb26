@@ -8,6 +8,8 @@ Es even zien of dit lekker werkt
 
 plaatje hier
 
-![](/public/img/2020_waddenzee_duitsebocht%3F.png)
+![](/public/img/2019_frankrijk.png)
+
+![](/public/img/2020_waddenzee_duitsebocht)
 
 plaatje daar
